@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **mahdimoham3412@gmail.com**
 
-- ⚡ Fun fact **I have interest in bjj and wrestling for hobby.**
+- ⚡ Fun fact **I have interest in bjj, Judo and wrestling for hobby.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
